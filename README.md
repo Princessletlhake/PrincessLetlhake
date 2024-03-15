@@ -3,6 +3,4 @@ I am a Junior Software Developer from South Africa, I am in the early stages of 
 
 SKILLS
 HTML / CSS / JS
-
-
-
+![fgcghn](https://github.com/Princessletlhake/PrincessLetlhake/assets/160168840/7422f1d5-1520-42b2-bfaf-d6b557efcfb1)
