@@ -32,7 +32,7 @@
 ---
 
 ## 📫 Let's Connect!
-- 📧 **Email:** [](mailto:princessletlhake7@gmail.com)  
+- 📧 **Email:** [Email](mailto:princessletlhake7@gmail.com)  
 - 💼 **LinkedIn:** [](https://www.linkedin.com/in/princess-letlhake-a25167232/)  
 - 🌎 **Portfolio:** [](#)
 
