@@ -32,8 +32,8 @@
 ---
 
 ## 📫 Let's Connect!
-- 📧 **Email:** [Email](mailto:princessletlhake7@gmail.com)  
-- 💼 **LinkedIn:** [](https://www.linkedin.com/in/princess-letlhake-a25167232/)  
+- 📧 **Email:** [princessletlhake7@gmail.com](mailto:princessletlhake7@gmail.com)  
+- 💼 **LinkedIn:** [PrincessLetlhake](https://www.linkedin.com/in/princess-letlhake-a25167232/)  
 - 🌎 **Portfolio:** [](#)
 
 ---
